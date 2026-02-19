@@ -1,0 +1,1 @@
+Customer wanted to know more about store prices and where most their money went to such as Stores and which product were the least expesice to the most expensive as well as best store for the product 
